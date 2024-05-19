@@ -1,6 +1,6 @@
 # Mento's skins 🚀 
 
-# [🟪Twitch🟪](https://twitch.tv/mentowosu_)
+# [🟪Twitch🟪](https://twitch.tv/mentowo_)
 
 # [🟦Twitter🟦](https://x.com/mentowosu)
 
